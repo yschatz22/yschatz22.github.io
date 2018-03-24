@@ -14,7 +14,7 @@ Prepare the following tools and materials:
 * Sandwich bags
 * Brown paper bags
 * Scissors
-* Sealing compound such as wax or tar
+* Sealing compound, such as wax or tar
 
 ## To perform a crown graft
 1. Using a pair of shears or a saw, cut a major limb or the central trunk of the tree that will serve as rootstock.
