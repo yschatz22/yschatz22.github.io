@@ -3,9 +3,8 @@ Crown grafting is one of the simplest and most popular methods of grafting. In t
 
 Crown grafting is especially useful when you want to replace the cultivar of a fruit tree. It is most commonly performed on deciduous trees in the early spring, as trees begin to emerge from dormancy.
 
-The following information provides you with an overview of the major steps in performing this method of grafting.
 ## Before you begin
-Prepare the following tools and materials to take with you to your tree:
+Prepare the following tools and materials:
 * Dormant clippings from the desired cultivar (see "Preparing clippings for scions")
 * Knife (grafting knife or utility knife)
 * Rope or cord
