@@ -5,7 +5,7 @@ Crown grafting is especially useful when you want to replace the cultivar of a f
 
 ## Before you begin
 Prepare the following tools and materials:
-* Dormant clippings from the desired cultivar (see [Preparing clippings for scions])
+* Dormant clippings from the desired cultivar (see [Preparing clippings for scions](http://www.example.com))
 * Knife (grafting knife or utility knife)
 * Rope or cord
 * Tape
