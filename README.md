@@ -30,5 +30,5 @@ This can be a major limb of the tree, or even the central trunk.
 7. Repeat steps 5 and 6 for as many scions that you want to graft onto this stump.
 8. Wind more tape around the stump to secure all scions in place.
 9. Spread some beeswax or any other sealing compound on the upper surface of the stump.
-10. Place a sandwich bag over the grafts and tie it to the limb of the tree with a string.
-11. Place a paper bag over the sandwich bag and tie it with a string.
+10. Place a sandwich bag over the grafts and tie it to the limb of the tree with a piece of rope.
+11. Place a paper bag over the sandwich bag and tie it with rope.
