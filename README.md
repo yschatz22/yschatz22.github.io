@@ -9,7 +9,7 @@ Prepare the following tools and materials:
 * Knife (grafting knife or utility knife)
 * Saw or shears
 * Rope or cord
-* Tape (grafting tape, flagging tape, or even thread seal tape)
+* Tape (grafting tape, flagging tape, or thread seal tape)
 * Thin screwdriver
 * Sandwich bags
 * Brown paper bags
