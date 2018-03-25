@@ -20,7 +20,7 @@ Prepare the following tools and materials:
 1. Choose the location where you want to perform the grafting, on the tree that will serve as rootstock. 
 This can be a major limb of the tree, or even the central trunk. 
 2. Using a pair of shears or a saw, cut off and discard the limb.
-3. In one or more locations around the crown of the stump, use a knife and then a screwdriver to begin prying the bark from the wood. Perfom this step for each of the scions that you plan to graft, at various locations around the crown. 
+3. In one or more locations around the crown of the stump, use a knife and then a screwdriver to begin prying the bark from the wood. Perform this step for each of the scions that you plan to graft, at various locations around the crown. 
 4. Wrap tape around the circumference of the rootstock crown, at the top of the stump.
 5. Take one of your cuttings and prepare a scion from it:
     1. Remove and discard about an inch from the top and the bottom of the cutting.
